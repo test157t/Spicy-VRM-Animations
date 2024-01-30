@@ -1,1 +1,1 @@
-Just a bunch of nsfw animations converted for the SillyTavern VRM Extension.
+Just a bunch of "spicy" animations converted for the SillyTavern VRM Extension.
